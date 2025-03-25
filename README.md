@@ -19,6 +19,6 @@
 
 ---
 
-### 🏆 Creado por **StrapTechnologies** y **LionTech** 🚀  
+### 🏆 Creado por **LionTech** 🚀  
 
 
